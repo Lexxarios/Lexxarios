@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lexxarios
+- 👋 Hi, I’m @Lexxarios 
 - 👀 I’m interested in crypto
 - 🌱 I’m currently learning Spanish
 - 💞️ I’m looking to collaborate on ...
